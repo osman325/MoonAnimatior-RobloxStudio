@@ -1,2 +1,2 @@
 # MoonAnimatior-RobloxStudio
-Tutorial: https://youtube/YoBDrUqWPxk
+Tutorial: https://www.youtube.com/watch?v=YoBDrUqWPxk
